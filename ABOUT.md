@@ -1,0 +1,1 @@
+Creating a landing page that mirrors the formatting and style provided in the instructions.
